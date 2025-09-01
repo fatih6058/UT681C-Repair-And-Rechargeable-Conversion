@@ -57,7 +57,7 @@ Ayrıca cihazı **şarj edilebilir** hale getirerek modernize ettim.
 ---
 
 ## 
-[👉 (YouTube linkini buraya ekleyebilirsiniz.)](https://youtu.be/saiVfF1WWK8?si=3JA7nI1i9N89FqCp)
+(https://youtu.be/saiVfF1WWK8?si=3JA7nI1i9N89FqCp)
 
 ---
 
